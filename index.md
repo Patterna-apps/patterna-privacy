@@ -25,4 +25,4 @@ If changes are made to this privacy policy, the updated version will be publishe
 ## Contact
 If you have any questions about this privacy policy, you may contact:
 
-**Email:** support@patterna.no
+**Email:** patterna.apps@gmail.com
